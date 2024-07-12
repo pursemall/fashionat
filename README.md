@@ -1,6 +1,6 @@
 # Create google redirect links for my website
 
-www.purseamall.cn Google Redirectly links are below
+[www.purseamall.cn](https://www.purseamall.cn) Google Redirectly links are below
 
 [https://maps.google.bs/url?sa=t\&url=https://www.purseamall.cn/](https://maps.google.bs/url?sa=t\&url=https://www.purseamall.cn/)&#x20;
 
