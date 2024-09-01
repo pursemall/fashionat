@@ -1,6 +1,7 @@
 # Table of contents
 
 * [Reviews of dior bobby bags](README.md)
+* [why the dior book tote bag so popular](why-the-dior-book-tote-bag-so-popular.md)
 * [Create google redirect links for my website](<README (2).md>)
 * [Replicabags:What is the difference between  shopper bag and tote bag](<README (1).md>)
 * [5 Questions for Choosing the Right Luggage Travel bag](5-questions-for-choosing-the-right-luggage-travel-bag.md)
