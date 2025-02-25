@@ -1,6 +1,7 @@
 # Table of contents
 
-* [Why Do People Choose Imitations Over Originals?](README.md)
+* [Dior Book Tote bag is a Status Symbol](README.md)
+* [Why Do People Choose Imitations Over Originals?](<README (4).md>)
 * [Reviews of dior bobby bags](<README (3).md>)
 * [Most famous style of ysl bags](most-famous-style-of-ysl-bags.md)
 * [why the dior book tote bag so popular](why-the-dior-book-tote-bag-so-popular.md)
